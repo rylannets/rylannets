@@ -1,6 +1,6 @@
 &nbsp;   &nbsp;   &nbsp;   &nbsp;   &nbsp;  
 &nbsp;   &nbsp;   &nbsp;   &nbsp;   &nbsp;  
-<img align="left" src="https://files.catbox.moe/5mol0l.png" alt="image" width="170" />
+<img align="center" src="https://files.catbox.moe/5mol0l.png" alt="image" width="170" />
 &nbsp;   &nbsp;   &nbsp;   &nbsp;   &nbsp;  
 &nbsp;   &nbsp;   &nbsp;   &nbsp;   &nbsp;  
 &nbsp;   &nbsp;   &nbsp;   &nbsp;   &nbsp;  
