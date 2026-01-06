@@ -1,14 +1,24 @@
+
+
+<img align="left" src="https://files.catbox.moe/5mol0l.png" alt="image" width="200" />
+
+
+
+<img align="right" src="https://files.catbox.moe/p394sl.png" alt="image" />
+
+<p align="right">
+
+
+
+𓂂︶︶   ୨ ⟡ ୧⠀︶︶𓂂
+<img align="left" src="https://files.catbox.moe/okkiki.png" alt="image" />
 ‎ ‎ ‎ ‎ ‎ ‎<p align="center">
-  <a href="https://rentry.co/duorapier">rentry</a> 𓏴
-  <a href="https://x.com/rekstuff">twt </a> 𓏴
-  <a href="https://rekrap2.atabook.org">ata </a> 𓏴
-  <a href="https://colormytree.me/2025/01KBMY8V97Q6M47BC23QANG4HW">color tree🎄! </a>
+  <a href="https://rentry.co/duorapier">ren𝖙ry</a> 𓏴
+  <a href="https://x.com/rekstuff">𝖙wt </a> 𓏴
+  <a href="https://rekrap2.atabook.org">a𝖙a </a> 𓏴
     ‎ ‎ ‎ ‎‎<p align="center">
-wip
-  ‎ ‎ ‎ ‎‎<p align="center">
-  <a href="https://github.com/moonlightduo"> MAIN ACC!! </a> 𓏴 
-  <a href="https://github.com/marriageduo">  ALT 2 </a> 𓏴
-  <a href="https://github.com/rapierduo"> ALT 3 </a> 
-  ‎ ‎ ‎ ‎‎<p align="center">
-![G0srX6tXoAAdn9x](https://github.com/user-attachments/assets/1c04a53b-a593-4461-a04a-670d5f39d8da)
-art credit to sclistice on twitter / x !!:D
+    𓆩 my github accounts! 𓆪
+  <a href="https://github.com/moonlightduo"> MAIN (moonlight duo/ rekrap2) </a> 𓏴 
+  <a href="https://github.com/marriageduo">  saps </a> 𓏴
+  <a href="https://github.com/rapierduo"> judelow </a> 
+
