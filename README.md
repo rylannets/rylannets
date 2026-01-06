@@ -18,11 +18,10 @@
 
 ‎<p align="center">
 $${\color{lightgreen}𓆩my} \space {\color{lightgreen}githubs!𓆪}$$
-  
-$${\color{lightgreen}𓆩 } \space {\color{lightgreen}my} \space {\color{lightgreen}github} \space {\color{lightgreen}accounts!} \space {\color{lightgreen}𓆪}$$
+
   
 &nbsp;   &nbsp;   &nbsp;   &nbsp;   &nbsp;
-‎<p align="center">
+‎<p align="right">
   <a href="https://github.com/moonlightduo"> 𝖗ekrap2 </a> 𓏴 
   <a href="https://github.com/marriageduo">  𝖘aparata </a> 𓏴
   <a href="https://github.com/rapierduo"> 𝖏udelow </a> 
