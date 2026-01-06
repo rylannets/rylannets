@@ -1,17 +1,17 @@
 
 
-<img align="left" src="https://files.catbox.moe/5mol0l.png" alt="image" width="200" />
+<img align="left" src="https://files.catbox.moe/5mol0l.png" alt="image" width="170" />
 
-
-
-<img align="right" src="https://files.catbox.moe/p394sl.png" alt="image" />
-
-<p align="right">
-
-
-
+ <p align="right">
+‍ 
+  ‍ ­
+  ‍ 
 𓂂︶︶   ୨ ⟡ ୧⠀︶︶𓂂
-<img align="left" src="https://files.catbox.moe/okkiki.png" alt="image" />
+
+<img align="right" src="https://files.catbox.moe/p394sl.png" alt="image" width="400" />
+
+
+<img align="left" src="https://files.catbox.moe/okkiki.png" alt="image" width="250" />
 ‎ ‎ ‎ ‎ ‎ ‎<p align="center">
   <a href="https://rentry.co/duorapier">ren𝖙ry</a> 𓏴
   <a href="https://x.com/rekstuff">𝖙wt </a> 𓏴
