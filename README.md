@@ -7,17 +7,22 @@
 <img align="left" src="https://files.catbox.moe/okkiki.png" alt="image" width="250" />
 
 &nbsp;   &nbsp;   
+‎<p align="center">
 𓂂︶︶   ୨ ⟡ ୧⠀︶︶𓂂
 
 ‎ ‎ ‎ ‎ ‎ ‎<p align="center">
   <a href="https://rentry.co/duorapier">ren𝖙ry</a> 𓏴
   <a href="https://x.com/rekstuff">𝖙wt </a> 𓏴
   <a href="https://rekrap2.atabook.org">a𝖙a </a> 𓏴
-    ‎ ‎ ‎ ‎‎<p align="right">
+  
 
+‎<p align="center">
+$${\color{lightgreen}𓆩my} \space {\color{lightgreen}githubs!𓆪}$$
+  
 $${\color{lightgreen}𓆩 } \space {\color{lightgreen}my} \space {\color{lightgreen}github} \space {\color{lightgreen}accounts!} \space {\color{lightgreen}𓆪}$$
   
 &nbsp;   &nbsp;   &nbsp;   &nbsp;   &nbsp;
+‎<p align="center">
   <a href="https://github.com/moonlightduo"> 𝖗ekrap2 </a> 𓏴 
   <a href="https://github.com/marriageduo">  𝖘aparata </a> 𓏴
   <a href="https://github.com/rapierduo"> 𝖏udelow </a> 
