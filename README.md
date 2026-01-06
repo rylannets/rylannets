@@ -21,10 +21,8 @@
   <a href="https://github.com/moonlightduo"> MAIN (moonlight duo/ rekrap2) </a> 𓏴 
   <a href="https://github.com/marriageduo">  saps </a> 𓏴
   <a href="https://github.com/rapierduo"> judelow </a> 
-‍ 
-  ‍ ­
-  ‍ 
-   <img width="100" height="75" alt="stamp5" src="https://komarev.com/ghpvc/?username=rylannets&label=˖₊⁺+𝖋airies++&color=77d666" />
+
+   <img width="100" height="75" alt="stamp5" src="https://komarev.com/ghpvc/?username=rylannets&label=˖₊⁺+𝖋airies++&color=77d666" hspace="10" />
 ‍ 
   ‍ ­
   ‍ 
