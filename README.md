@@ -23,7 +23,7 @@ $${\color{lightgreen}𓆩my} \space {\color{lightgreen}githubs!𓆪}$$
 &nbsp;   &nbsp;   &nbsp;   &nbsp;   &nbsp;
 ‎<p align="right">
   <a href="https://github.com/moonlightduo"> 𝖗ekrap2 </a> 𓏴 
-  <a href="https://github.com/marriageduo">  𝖘aparata </a> 𓏴
+  <a href="https://github.com/sapaarata">  𝖘aparata </a> 𓏴
   <a href="https://github.com/rapierduo"> 𝖏udelow </a> 
 
 ‍ 
