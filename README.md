@@ -8,12 +8,12 @@
 
 &nbsp;   &nbsp;   
 ‎<p align="center">
-𓂂︶︶   ୨ ⟡ ୧⠀︶︶𓂂
+————　◡◡　₎　　
 
 ‎ ‎ ‎ ‎ ‎ ‎<p align="center">
-  <a href="https://rentry.co/duorapier">ren𝖙ry</a> 𓏴
-  <a href="https://x.com/rekstuff">𝖙wt </a> 𓏴
-  <a href="https://rekrap2.atabook.org">a𝖙a </a> 𓏴
+  <a href="https://rentry.co/soullanternduo">ren𝖙ry wip</a> ‗‗
+  <a href="https://x.com/rekstuff">𝖙wt </a> ‗‗
+  <a href="https://rekrap2.atabook.org">a𝖙a </a> ‗‗
   
 
 ‎<p align="center">
@@ -22,9 +22,9 @@ $${\color{lightgreen}𓆩my} \space {\color{lightgreen}githubs!𓆪}$$
   
 &nbsp;   &nbsp;   &nbsp;   &nbsp;   &nbsp;
 ‎<p align="right">
-  <a href="https://github.com/moonlightduo"> 𝖗ekrap2 </a> 𓏴 
-  <a href="https://github.com/sapaarata">  𝖘aparata </a> 𓏴
-  <a href="https://github.com/assassinduo">  ewroon </a> 𓏴
+  <a href="https://github.com/moonlightduo"> 𝖗ekrap2 </a> ₎⠀ 
+  <a href="https://github.com/sapaarata">  𝖘aparata </a> ₎⠀
+  <a href="https://github.com/assassinduo">  ewroon </a> ₎⠀
   <a href="https://github.com/judeloww"> 𝖏udelow </a> 
 
 ‍ 
