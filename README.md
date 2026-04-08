@@ -11,7 +11,7 @@
 ————　◡◡　₎　　
 
 ‎ ‎ ‎ ‎ ‎ ‎<p align="center">
-  <a href="https://rentry.co/soullanternduo">ren𝖙ry wip</a> ‗‗
+  <a href="https://rentry.co/soullanternduo">ren𝖙ry</a> ‗‗
   <a href="https://x.com/rekstuff">𝖙wt </a> ‗‗
   <a href="https://rekrap2.atabook.org">a𝖙a </a> ‗‗
   
