@@ -1,7 +1,7 @@
 <img align="left" src="https://files.catbox.moe/5mol0l.png" alt="image" width="170" />
 <br />
  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎<p align="center">
-   <img width="100" height="75" alt="stamp5" src="https://komarev.com/ghpvc/?username=rylannets&label=˖₊⁺+𝖋airies++&color=77d666" hspace="10" />
+   <img width="100" height="30" alt="stamp5" src="https://komarev.com/ghpvc/?username=rylannets&label=˖₊⁺+𝖋airies++&color=77d666" hspace="10" />
 <br />
 <img align="right" src="https://files.catbox.moe/p394sl.png" alt="image" width="400" />
 <img align="left" src="https://files.catbox.moe/okkiki.png" alt="image" width="250" />
