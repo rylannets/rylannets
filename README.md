@@ -16,8 +16,7 @@
   <a href="https://rekrap2.atabook.org">a𝖙a </a> ‗‗
   
 
-‎<p align="center">
-$${\color{lightgreen}𓆩my} \space {\color{lightgreen}githubs!𓆪}$$
+
 
   
 &nbsp;   &nbsp;   &nbsp;   &nbsp;   &nbsp;
